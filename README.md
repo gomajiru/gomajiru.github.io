@@ -1,0 +1,1 @@
+# gomajiru.github.io
